@@ -3,6 +3,6 @@ THIS is my websitee!!! :>>>>>>>
 
 laviⓒ
 
-https://lavi27.github.io/Homepage/
+https://lavi27.github.io/l/
 
 email : npt1237@gmail.com
